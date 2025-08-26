@@ -9,3 +9,17 @@ The June 16 article “Don’t bring a gun to the NC legislature. Here’s what 
 
 Read more at: https://www.newsobserver.com/opinion/letters-to-the-editor/article308766955.html#storylink=cpy
 
+<h2>No Kings</h2>
+Voices were loud and clear during the No Kings rallies throughout North Carolina and the nation. Our citizens clearly communicated to government officials: We the People want democracy. We the People want human rights. We the People want to maintain solid relationships with our traditional allies. What is happening to our nation is an abomination. It is an insult to our Founding Fathers and to the principles upon which the U.S. was founded. Residents of NC’s 100 counties are watching the state legislature and Congress members. We demand that they start acting on behalf of democracy and stop kissing the ring of autocracy. With all due respect to our elected leaders, each of you works for North Carolina’s citizens. We ask that you listen to us and respect this country’s 250-year history. Kathy Repass, Cary 
+
+<h2>Veterans</h2> 
+I served for more than a decade in the Air Force and flew over 150 combat sorties in Iraq and Afghanistan. President Donald Trump tells us that he is an ally to veterans, that he is fighting for our well-being. His former chief of staff, retired Marine General and gold star father John Kelly, has made it clear how Trump feels about those who sacrifice for the country. 
+
+The President is seeking to cut billions of dollars from veteran service programs. He supported DOGE’s mass firing of hardworking veterans from their government jobs. He said nothing when DOGE fired veteran crisis hotline staff, which works to stop veteran suicide. The Trump administration continues to neglect veterans’ interests. It’s working to pass a budget that would reduce Medicaid spending by at least $600 billion. That would rip health care from veterans as well as children, seniors and the disabled. To honor service members, Congress must vote no on this dangerous budget. Alex Rich, Durham 
+
+<h2>SNAP</h2>
+SNAP allows millions of NC children, families, people with disabilities, veterans and seniors to better afford groceries, while boosting our economy. This is important because the cost of groceries is increasing while families’ wages are flat, if not decreasing. But SNAP is at risk of up to $300 billion in cuts due to the Republicans’ “Big Beautiful Bill.” This is more like a Big Awful Betrayal for families and for our economy if passed. Our Senate leaders must do something to protect the poor and working class in NC.
+
+Read more at: https://www.newsobserver.com/opinion/letters-to-the-editor/article308766955.html#storylink=cpy
+
+
